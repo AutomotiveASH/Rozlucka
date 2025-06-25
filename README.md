@@ -1,2 +1,0 @@
-# Rozlucka
-Rozlučka Lukáš
